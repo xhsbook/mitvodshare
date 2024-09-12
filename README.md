@@ -2,4 +2,4 @@
 
 ## 分享一款非常好的短视频App　[下载](https://cn2dl.xiaoquanapp.com/蜜桃TV1001.apk)
 
-#### ![image]([https://github.com/xhsbook/mitshare/httpsmitvod.xyzshareTraceId=5103.png])
+#### ![image](https://github.com/xhsbook/mitshare/httpsmitvod.xyzshareTraceId=5103.png)
